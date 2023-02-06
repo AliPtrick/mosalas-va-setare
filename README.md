@@ -1,0 +1,2 @@
+# mosalas va setare
+ 
